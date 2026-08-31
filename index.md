@@ -31,4 +31,4 @@ Bu gizlilik politikası zaman zaman güncellenebilir. Önemli değişiklikler bu
 7. İletişim
 Gizlilikle ilgili sorularınız için: uskyazilim@gmail.com
 
-Küçük Bahçem — Usky Yazılım
+Küçük Bahçem — Usk Yazılım
